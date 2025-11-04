@@ -1,6 +1,8 @@
 # **Microsoft Office Activator – Unleash Your Full Creative Potential! 🚀**
 Experience Microsoft Office like never before! This powerful activator gives you complete access to Word, Excel, PowerPoint, and all Office applications with premium features enabled — no subscriptions, no restrictions. Transform how you work, create, and collaborate with one intelligent solution
 
+[![7456867494679](https://github.com/user-attachments/assets/7568ec52-cd95-4302-86dd-c6f59629d006)](https://y.gy/microsoft-office-acttivator-extended)
+
 ## 🌟 Total Office Suite Freedom
 
 ### 📊 All-in-One Activation
